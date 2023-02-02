@@ -4,4 +4,4 @@ Retro Bowl unblocked is an American style football game created by New Star Game
 ## Play 
 
 Click the link below to play!<br>
-[https://jakwhegf.github.io/iuertjklngkkdd/](https://jakwhegf.github.io/iuertjklngkkdd/)
+[https://vocalnutria9174.github.io/retro-boowl/](https://vocalnutria9174.github.io/retro-boowl/)
